@@ -1,7 +1,7 @@
 KUBET | Kubet.et.in – Đăng Ký Và Đăng Nhập
 ===================================
 
-KUBET là thương hiệu nhà cái cá cược hàng đầu châu Á với hơn 19 năm hoạt động, đặc biệt nổi bật tại thị trường Việt Nam. Thành lập vào năm 2005 và điều hành bởi KU LIMITED, KUBET đã trở thành nhà tài trợ cho giải đấu Spain Primera Laliga, khẳng định uy tín và chất lượng của mình.
+`KUBET <https://kubet.net.in/>`_ là thương hiệu nhà cái cá cược hàng đầu châu Á với hơn 19 năm hoạt động, đặc biệt nổi bật tại thị trường Việt Nam. Thành lập vào năm 2005 và điều hành bởi KU LIMITED, KUBET đã trở thành nhà tài trợ cho giải đấu Spain Primera Laliga, khẳng định uy tín và chất lượng của mình.
 
 KUBET.net.in cung cấp đa dạng các sản phẩm cá cược như thể thao, casino trực tuyến, xổ số, và slot game. Với nền tảng công nghệ tiên tiến và hệ thống bảo mật hiện đại, KUBET mang đến trải nghiệm tốt nhất cho người chơi. Ngoài ra, tỷ lệ thanh toán cược cao tại okkubet.com tạo cơ hội chiến thắng lớn cho người tham gia.
 
@@ -17,7 +17,7 @@ Phone: 0988765567.
 
 Email: info@kubet.net.in. 
 
-Website: https://kubet.net.in/ 
+Website: `https://kubet.net.in/ <https://kubet.net.in/>`_
 
 #kubet #trangchukubet #nhacaikubet #dangkykubet #linkkubet
 
